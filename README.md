@@ -1,3 +1,3 @@
 - Computational mathematics student @ UCLA
-- Passionate about blockchain and web3 development
+- Passionate about web3 development
 - Aspiring philanthropist
