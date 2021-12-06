@@ -1,3 +1,3 @@
-- Computational mathematics student @ UCLA
+- Applied mathematics student @ UCLA
 - Passionate about web3 development
 - Aspiring philanthropist
