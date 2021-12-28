@@ -1,3 +1,4 @@
 - Applied mathematics student @ UCLA
 - Passionate about web3 development
 - Aspiring philanthropist
+- Contact: robertjweisz@ucla.edu
