@@ -1,4 +1,4 @@
-- Applied mathematics student @ UCLA
+- Applied Mathematics student @ UCLA
 - Passionate about Economics and Data Analytics
 - Aspiring philanthropist
 
